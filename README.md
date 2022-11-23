@@ -1,0 +1,3 @@
+Hi, I’m Kevin. I'm interested in learning about people and seeing them in their element. My goal is to build stages for people to put on the show of their lifetime. It's all about the audience. I'm looking to collaborate with people who want to learn VR improv. It doesn't exist yet and it's probably impossible. I'm very optimistic about the long term future (10+ years out) and I'm very nervous about the near future. Low key terrified tbh. Snap me [snapchat.com/add/kevinhabich](https://snapchat.com/add/kevinhabich).
+
+Oh, but most importantly - I'm looking to get in touch with the team that designs cable tv remote controls
