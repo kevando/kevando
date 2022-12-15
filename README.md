@@ -1,3 +1,10 @@
-Hi, I’m Kevin. I'm interested in learning about people and seeing them in their element. My goal is to build stages for people to put on the show of their lifetime. It's all about the audience. I'm looking to collaborate with people who want to learn VR improv. It doesn't exist yet and it's probably impossible. I'm very optimistic about the long term future (10+ years out) and I'm very nervous about the near future. Low key terrified tbh. Snap me [snapchat.com/add/kevinhabich](https://snapchat.com/add/kevinhabich).
+#  I am a Conspiracy Theorist 
 
-Oh, but most importantly - I'm looking to get in touch with the team that designs cable tv remote controls
+I love exploring possibility. The beauty of the unknown is our imagination. And I learned a lot from digging lots of rabbit holes. Many of them do not look similar at the surface, but the deeper you dig, similarites start to emerge and you can see it's just "Big Brother" again. The real value comes not from digging down, but from digging up. It's when I see the light that I'm reminded how crazy things were down there. And how people's concerns can be misplaced and valid at the same time. (ie: your phone does not listen to you. it's much worse than that). But at the end of the day, it all comes down to belief. What do you believe? Do aliens exist? Sure is plenty of convincing evidence. But all the evidence  has also been convincingly refuted, too. That means I have to choose whether or not I believe in aliens, a rather profound thought. Is all belief a choice? I think so. 
+
+<br>
+
+*now where was I...*
+
+# 🕳️ 🐇
+
